@@ -1,1 +1,1 @@
-# -esko-anglick-slovn-k-
+# -cesko-anglicky-slovnik-
